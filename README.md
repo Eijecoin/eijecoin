@@ -1,0 +1,4 @@
+eijecoin
+========
+
+Long Live Eijecoin
